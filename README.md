@@ -1,0 +1,6 @@
+- sup, welcome to the den of @mxthra
+- hoping to make funny little games and also supplement my new career with coding
+- learning python atm, like to think i'm good at it
+- hoping to learn as much as i can from others
+- if you wanna talk, good luck finding me
+- see you in the zone, the pizza zone
